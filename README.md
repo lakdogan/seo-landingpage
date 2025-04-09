@@ -1,1 +1,1 @@
-# semrush-landingpage
+# Landingpage Practise for Affiliate Marketing
